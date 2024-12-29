@@ -1,0 +1,6 @@
+# 【双规直销+带商城】,二二复制|复利|分红|层碰奖|量碰奖|感恩奖|领导奖|见点奖
+
+前须知<br>example.com，可复制性高，一旦发货，不接收退货退款；<br>example.com，所以目前不支持任何技术服务；<br>example.com，可联系店主：<br>商讨好合适的手工服务费，即可替您提供技术支持<br>example.com，不含安装费~<br>制度介绍<br>　　金卡：5000  钻卡 VIP 10000元 二次消费  5折<br>　　一、定拨：0 报单即送1000电子币，报VIP10000对冲 25%，送价值5000元的测螨仪一台 1000原始股<br>　　二、层碰：层，第二层50%<br>　　无限层，无封顶<br>　　三、量碰：1:1 13% 日封顶5000元  15%  日封顶10000元<br>　　四、见点：网下 1-10层 5000元无见点奖 15% 10000万元 见点奖 100元<br>　　五、感恩：直推1人 提1代 10% 直推2人 提2代、3代 5%<br>　　六、领导：小区业绩累积20万：一星：网下新生业绩2%    笔记本电脑一台       3000元 一星徽章 国内游<br>　　大小区各一名一星：二星：网下新生业绩3%         价值10万元车一部      5000元 二星徽章 港澳游<br>　　大小区各一名二星：三星：网下新生业绩4%         价值40万元车一部      8000元 三星徽章 新马泰游<br>　　大小区各一名三星：四星：网下新生业绩5%         价值100万房子一套     10000元 四星徽章 欧洲游<br>　　大小区各一名四星：五星：网下新生业绩6%+27%（全球业绩） 价值500万别墅一套     20240元 五星徽章 环球游<br>　　七、加盟店：example.com（享受6万元商品）<br>　　2、店补3%<br>　　3、二次进货 example.com 折<br>　　4、推店：1500元<br>　　5、业绩累积 500万 各省可开分公司<br>　　重消：10% 管理费：5% 爱心基金：5%<br>
+
+
+<p style="color: red;">源代码下载地址：<a href="https://mega-file.org/zWmgD" style="color: red;">https://mega-file.org/zWmgD</a></p><p style="color: red;"><img src="https://cdn-icons-png.flaticon.com/512/2111/2111646.png" alt="Telegram Icon" style="width: 16px; vertical-align: middle; margin-right: 5px;">Telegram:<a href="https://t.me/official_sourcecode" style="color: red;">@official_sourcecode</a></p>
